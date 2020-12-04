@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Here are some ideas to get you started:
+### さあ、掛け狂いましょう。
 
 - ⚡ Addicted to Kakegurui. More specfically to Kirari Momobami.
 - ⚡ I write some code, like to learn new technologies and old ones as well.
